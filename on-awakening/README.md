@@ -10,7 +10,7 @@ That I may have an open mind
 And a new experience of all these things  
 Please let me see the truth
 ## On Awakening, Part 1
-On awakening let us think about the twenty-four hours ahead. We consider our plans for the day. Before we begin, we ask God to direct our thinking, especially asking that it be divorced from self-pity, dishonest or self-seeking motives. Under these conditions we can employ our faculties with assurance, for after all God gave us brains to use. Our thought life will be placed on a much higher plane when our thinking is cleared of wrong motives.
+On awakening let us think about the twenty-four hours ahead. We consider our plans for the day. Before we begin, we ask God to direct our thinking, especially asking that it be divorced from self-pity, dishonest or self-seeking motives. Under these conditions we can employ our mental faculties with assurance, for after all God gave us brains to use. Our thought life will be placed on a much higher plane when our thinking is cleared of wrong motives.
 ## Third Step Prayer
 I offer myself to thee -- to build with me and do with me as thou wilt. Relieve me of the bondage of self, that I may better do thy will. Take away my difficulties, that victory over them may bear witness to those I would help of thy power, thy love, and thy way of life. May I do thy will always!
 ## Daily planning
