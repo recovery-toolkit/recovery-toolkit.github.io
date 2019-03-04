@@ -1,9 +1,9 @@
 # Steel on Steel
 
 ## What is "Steel on Steel"
-Steel on Steel (SOS) is a spiritual exercise for members of twelve-step fellowships interested in attaining the fourth dimention of existence.
+Steel on Steel (SOS) is a spiritual exercise for members of twelve-step fellowships interested in attaining the fourth dimension of existence.
 
-Participation in an SOS group, represents a commitment to helping each other to maintain fit spiritual codition. This process fosters a special bond among members as they grow in their own conscious contact with the higher power of their own understanding.
+Participation in an SOS group, represents a commitment to helping each other to maintain fit spiritual condition. This process fosters a special bond among members as they grow in their own conscious contact with the higher power of their own understanding.
 
 Steel on Steel is all about fearless and thorough action in a spirit of love and tolerance and is not for people interested in half measures or middle-of-the-road solutions. Do not start this process unless you are committed to improving conscious contact and applying the principles represented by the steps in all your affairs.
 

@@ -19,7 +19,7 @@ I offer myself to thee -- to build with me and do with me as thou wilt. Relieve 
 * Daily planning
 
 ## On Awakening, Part 2
-In thinking about our day, we may face indecision. We may not be able to determine which course to take. Here we ask God for inspiration, an inituitve thought or a decision. We relax and take it easy. We don't struggle. We are often surprised how the right answers come after we have tried this for a while.
+In thinking about our day, we may face indecision. We may not be able to determine which course to take. Here we ask God for inspiration, an intuitive thought or a decision. We relax and take it easy. We don't struggle. We are often surprised how the right answers come after we have tried this for a while.
 ## Watch, Ask and Turn
 Continue to watch for selfishness, dishonesty, resentment and fear, when these crop up, we ask God at once to remove them. We discuss them with someone immediately and make amends quickly, if we have harmed anyone. Then we resolutely turn our thoughts to someone we can help. Love and tolerance of others is our code.
 ## Seventh Step Prayer
