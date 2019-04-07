@@ -1,6 +1,6 @@
 # recovery-toolkit.github.io
 
 [On Awakening](/on-awakening/)  
-[Eighteen Salitent Points](/eighteen-salient-points/)  
-[Evening Prayers](/evening-prayers/)  
+[Eighteen Salient Points](/eighteen-salient-points/)  
+[When We Retire](/when-we-retire/)  
 [Steel on Steel](/steel-on-steel)
